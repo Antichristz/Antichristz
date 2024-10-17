@@ -43,6 +43,8 @@
 
 Соси лапу фуфел 🔥🔥🔥☝️☝️
 
+Скажи базару ДЖЕКСОН И БУДЬ КРУТЫМ КАК МИШАНЯ 🦁🦁🦁🦁🦁
+
 </center>
 <!---
 Antichristz/Antichristz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
