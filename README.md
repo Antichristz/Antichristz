@@ -1,4 +1,4 @@
-<img align="left" src="https://media.discordapp.net/attachments/1236751716263919746/1341423146858840174/images.png?ex=67b5f128&is=67b49fa8&hm=c6a91c466acd27ffac62513031a2eade1040160c34eae133650e180808879309&=&format=webp&quality=lossless" width="190"> Obladau fimozom💀💀💀💀💀💀💀
+Obladau fimozom💀💀💀💀💀💀💀
 
 - 👋 name: @Antichristz
 
