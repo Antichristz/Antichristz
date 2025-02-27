@@ -31,7 +31,7 @@ Obladau fimozom💀💀💀💀💀💀💀
 
 <center>
 
-<img align="left" src="https://media.discordapp.net/attachments/1236751716263919746/1341423218451288064/eurotruck.jpg?ex=67b5f139&is=67b49fb9&hm=2355817d4702e5d64500cf96bcc7e2350b1002129898a7ac5ae81a63b4e8aef0&=&format=webp" width="400">
+<img align="left" src="https://media.discordapp.net/attachments/1132060896202596513/1344641646003884055/eurotruck.jpg?ex=67c1a69e&is=67c0551e&hm=921687c20aa86217953d2008709dbb88383282309ebc4780697d0067204b62a7&=&format=webp" width="400">
 
 От твоей словесной тупости мне плакать хочется 😭😭😭😭😭
 
