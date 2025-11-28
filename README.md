@@ -1,11 +1,1 @@
-- 👋 name: @Antichristz
-
-- 👀 Owned: fimozzzz
-                                                                                                                         
-- 🌱 Country: Russia ZV
-                                                                                                                                            
-- 💞️ Age: ???
-                                                                                                                                 
-- 📫 Works: No works
-  
-- 😄 Condition level: 1488
+<img align="left" src="https://i.ibb.co/xSkB1Qhh/5ec68e59d8c012ebfeaf4321e0380233.jpg" width="400">
